@@ -1,1 +1,1 @@
-# Learn from ChaiourCode from Hitesh Sir
+# Learn from Chai our Code from Hitesh Sir
